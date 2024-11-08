@@ -10,6 +10,9 @@ Hello!I'm Little Piggeon!
 I like comic,code and game!  
 我喜欢漫画、代码和游戏！  
 
+This my Bilibili accont:[LittlePiggeon](https://space.bilibili.com/3546685596765008)  
+这是我的Bilibili账号：[LittlePiggeon](https://space.bilibili.com/3546685596765008)  
+
 In fact, I am a UT/DR supporter! I really enjoy Toby Fox's games (although there are only two well-known ones)!  
 事实上，我是UT/DR党人😊！我很喜欢Toby Fox的游戏（虽然就两个有名的）！  
 
